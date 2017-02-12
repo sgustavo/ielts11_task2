@@ -6,5 +6,5 @@ Firstly, the education methodology did not evolve enough to provide an adequate 
 
 Secondly, a lack of financial education hampers young people nowadays. Institutions should include personal finance classes in the academic curriculum with practical activities in order to increase the student’s self-management skills. For instance, the Brazilian soccer player Adriano, as known as "The Imperator", was one of the most well paid athletes five years ago and now he is facing many financial troubles due the fact that he was not able to manage his incomes and moreover the breach of many contracts with some football clubs.
 
-To sum up, it is clearly that an educational reform is needed because of the time consuming presented in the scholarship curriculum and the consequences of rise unprepared adults to deal with the life challenges.
+To sum up, it is clearly that an educational reform is needed because of the time consuming presented in the scholarship curriculum and the consequences of unprepared adults to deal with the life challenges.
 
